@@ -5,7 +5,7 @@
 🌱 Currently learning **roadmap planning, user research, and data-driven decision-making**  
 💡 Previously at **Jio Platforms Limited**, developing **business iOS apps**  
 💞️ Open to collaborations on **tech-driven product ideas**  
-📫 Reach me on **[LinkedIn](https://www.linkedin.com/in/mubasir-siddiqui)**  
+📫 Reach me on **[LinkedIn](https://www.linkedin.com/in/mubasir-siddiqui/)**  
 ⚡ Fun fact: I started as a developer but fell in love with the **business side of tech!**  
 
 ---
